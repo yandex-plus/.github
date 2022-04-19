@@ -5,7 +5,7 @@
 
  - 👨‍💻 Lead - Extroot
 
- - ![tg](https://icons.iconarchive.com/icons/froyoshark/enkel/16/Telegram-icon.png)  How to reach us: [**Extroot**](t.me/extrott)
+ - ![tg](https://icons.iconarchive.com/icons/froyoshark/enkel/16/Telegram-icon.png)  How to reach us: [**Extroot**](t.me/extrott) [**Ziby**](t.me/Bomjgangster)
 
 **Liked this Organization? Why not follow it?**
 
